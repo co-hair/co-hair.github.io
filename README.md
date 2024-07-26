@@ -1,1 +1,1 @@
-# kimi-hair.github.io
+# co-hair.github.io
